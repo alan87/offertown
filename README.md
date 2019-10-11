@@ -1,2 +1,2 @@
 # offertown
-aá estoy subiendo las pantallas de offertyown
+aá estoy subiendo las pantallas de offertown
